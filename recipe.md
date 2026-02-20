@@ -16,3 +16,8 @@
 4. Layer the Ingredients: Spread half of the mascarpone mixture over the layer of dipped ladyfingers. Repeat the process with another layer of dipped ladyfingers followed by the remaining mascarpone mixture.
 5. Chill: Cover the dish with plastic wrap and refrigerate for at least 4 hours, preferably overnight, to allow the flavors to meld and the dessert to set.
 6. Serve: Before serving, dust the top generously with cocoa powder using a fine mesh strainer. Cut into squares and enjoy!
+
+## Tips
+- Make Ahead: Tiramisu can be made a day in advance, and it often tastes better the next day as the flavors develop.
+- Variations: You can experiment with different flavors by adding chocolate shavings, nuts, or using flavored coffee.
+This recipe is a delightful way to enjoy a traditional Italian dessert that is sure to impress your guests! Enjoy your homemade tiramisu!
