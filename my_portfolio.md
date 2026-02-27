@@ -1,3 +1,8 @@
+### Profile
+- **Started**: 27/02/26
+- **Role**: Software Developer
+- **Hobbies**: running, videography and photography
+
 # Markdown File
 Click here to skip to the footnote. [^1]
 
